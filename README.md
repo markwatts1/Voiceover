@@ -1,1 +1,4 @@
-# Voiceover
+Public people - politicians, actors, musicians, athletes - who wish to learn how to talk, often ask for help professional educators on rhetoric. And can the ordinary person become a master of oratory? Of course! The only necessary things are desire, perseverance and willingness to self-improvement.
+The main thing - it's a workout. Set a goal to learn to speak correctly; you need to continuously monitor a speech in everyday life: build sentences in accordance with the norms of the literary language, intone right and not to use the word-parasites.
+
+Some time after the regular training you can be arrange yourself for a small exam. Record your <a href="http://en.isid.de/german-voice-over/">german voice over</a> somewhere. Listening to these recordings helps you to identify errors, pay attention to the shortcomings. It will be good, if you collect that records. Analyzing the record in chronological order, it is possible to trace the positive dynamics and to trend the success of your workouts.
